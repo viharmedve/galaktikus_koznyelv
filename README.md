@@ -1,0 +1,1 @@
+# galaktikus_koznyelv
